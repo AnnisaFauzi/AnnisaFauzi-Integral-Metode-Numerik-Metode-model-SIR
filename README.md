@@ -1,0 +1,1 @@
+# AnnisaFauzi-Integral-Metode-Numerik-Metode-model-SIR
